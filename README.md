@@ -1,2 +1,1 @@
-# cinta-ku.
-sayang ku
+joki-kontak-ucup
